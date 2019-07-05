@@ -1,1 +1,1 @@
-# SouthEast_University
+# Southeast_University
